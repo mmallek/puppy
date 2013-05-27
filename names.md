@@ -1,6 +1,3 @@
-# new test document for text sublime program
-# needed to make a list of potential puppy names anyway :)
-
 bird names
 	sparrow
 	raven
