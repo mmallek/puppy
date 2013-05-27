@@ -1,9 +1,19 @@
 Puppy equipment
 
-items needed immediately
+items needed
+------------
+ * crate
+ * bed/mat
+ * bowls
+ * leash
+ * collar
+ * balls/toys
 
 
 items to buy
+------------
+ *
 
 
-items coming to NYC
+items from Magic
+----------------
