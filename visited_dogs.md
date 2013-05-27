@@ -55,3 +55,27 @@ Thin small lab male, 9 months. Very sweet and energetic, but not hyper.  Much m
 
 M: Very young, will probably gain 10--15 pounds (currently 31 lbs). Super energetic, but pretty able to self-entertain.  Hard to evaluate it but he did wander around the room. Lanky, tall. Could reach counter.  Food responsive, but also very praise responsive.  looked at lee's face instead of for the treat.
 
+
+SWEETPEA Friends of Rutland Animals
+===================================
+Somewhat less organized place, not nearly as nice as Simon, not very homey like Pack Leaders.  Didn't actually seem to put that much of an effort into training/assessing the dogs.
+
+Knight
+------
+![Knight](Knight.jpg)
+
+Shepherd/Setter/Retriever (Chow?) male, about 1 year.
+
+
+Kalli
+-----
+![Kalli](Kalli.jpg)
+
+Bluetick Coonhound / Heeler Female, roughly 2 years.
+
+Quaker
+-------
+![Quaker](Quaker.jpg)
+
+Some hound? Male, roughly 1 year
+
