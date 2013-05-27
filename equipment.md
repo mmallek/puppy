@@ -1,9 +1,24 @@
 Puppy equipment
 
-items needed immediately
+items needed
+------------
+ * crate
+ * bed/mat
+ * bowls
+ * leash
+ * collar
+ * balls/toys
+ * highline
 
 
 items to buy
+------------
+ *
 
 
-items coming to NYC
+items from Magic
+----------------
+ * "How to Raise A Puppy You Can Live With"
+ * Nail clipper
+ * Leashes?
+ * Bowls?
