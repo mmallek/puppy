@@ -104,5 +104,5 @@ Quaker
 -------
 ![Quaker](Quaker.jpg)
 
-Some hound? Male, roughly 1 year
+Treeing Walker Coonhound Male, roughly 1 year
 
