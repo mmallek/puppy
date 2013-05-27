@@ -96,7 +96,7 @@ Shepherd/Setter/Retriever (Chow?) male, about 1 year.
 
 Kalli
 -----
-![Kalli](Kalli.jpg)
+![Kalli](Kali.jpg)
 
 Bluetick Coonhound / Heeler Female, roughly 2 years.
 
