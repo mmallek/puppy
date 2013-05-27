@@ -5,6 +5,12 @@ INDIA
 -----
 ![India](India.jpg)
 
+> India is a remarkable young kelpie mix.  Her black coat and intense gold eyes
+> are striking.  She is shy at first introduction but warms up quickly when she
+> gets to know you.  India is looking for her forever family.  If you are
+> interested in sharing your life with this beautiful girl, submit an
+> application to adopt on our website:  thesimonfoundation.org
+
 Kelpie/Chow female. Cute, a little overweight.  Looks like a dark fuzzy heeler. Very kissy, attention driven.  Can calm down easily when asked.  Sits well, can lie down too.  Trainer says she's pretty trainable and smart. Can be vocal with other dogs, but wasn't when she played with Miura (trainer's male shepherd).
 
 Lee: I liked how attention-driven she was, energetic but not hyper/obnoxious.  Liked toys but wasn't obsessed.  Played well, but not too intensely and I was able to get her to come to me during play.
@@ -25,6 +31,12 @@ CAPTAIN
 -------
 ![Captain](Captain.jpg)
 
+> Wonderful young boxer mix is looking for an active family to call his own.
+> Captain is great with other dogs, and cats are okay too.  He has some basic
+> obedience and will gladly give you his paw, if you will only give him some
+> well deserved attention.  If you would like to meet Captain, please submit an
+> application on our website:  thesimonfoundation.org
+
 Boxer/shepherd male.  Tall and gangly with big paws and big head but skinny torso. Very sweet, a bit rambunctious at first but calmed down pretty well. Pays attention very nicely when you have a toy or his attention.  High energy and very interested in smells but not too hard to get his attention.  Good sit and down commands.
 
 Played nicely with Miura, but pretty intensely.  It was/would have been hard to distract him from play.
@@ -43,6 +55,10 @@ HAPPY
 -----
 ![Happy](Happy.jpg)
 
+> Happy is a beautiful sweet boy. He is 3 years old. He loves children and is
+> good with other dogs. He is hw neg, fully vetted and neutered , Happy is a
+> loving boy and wants to find a home that he can relax and sit on the couch.
+
 Corgi/hound/boxer male two-three years. Very calm and chill. Responsive but not terribly attentive.  Affectionate when wanted, but pretty aloof otherwise. Not vocal, interacted well with other dogs, which it knew. Not much of a personal connection, even when doing some training/praise exercises.  More food responsive than praise/attention.
 
 M: Seemed like an older dog, in his temperament. Always seems chilled out but probably still needs a lot of exercise. Not a couch potato, despite the ad. Short and very long. Could reach counter. Trainable. Very pretty.
@@ -50,6 +66,10 @@ M: Seemed like an older dog, in his temperament. Always seems chilled out but pr
 MARLEE
 ------
 ![Marlee](Marley.jpg)
+
+> Marley is an awesome 8 month old lab mix. He is fully vetted, housetrained
+> and neutered. He is so wonderful with children and other dogs. Please fill
+> out an application on our website at www.packleadersrescue.com
 
 Thin small lab male, 9 months. Very sweet and energetic, but not hyper.  Much more affectionate than Happy, seemed to connect personally with me, unlike Happy. Very sweet, smart, cute and energetic. Responds well to attention, but not too attached (of course, more distractions at the house than simon).
 
@@ -60,12 +80,19 @@ SWEETPEA Friends of Rutland Animals
 ===================================
 Somewhat less organized place, not nearly as nice as Simon, not very homey like Pack Leaders.  Didn't actually seem to put that much of an effort into training/assessing the dogs.
 
+We met the dogs outside, on our own, on leash.  Yet another situation different from Simon/Pack Leaders.  Dogs had some distractions, but also less after they were used to being outside.
+
 Knight
 ------
 ![Knight](Knight.jpg)
 
 Shepherd/Setter/Retriever (Chow?) male, about 1 year.
 
+> KNIGHT is neutered and just a year old. He should be the only dog in a
+> household, as he is rambunctious with other dogs. Lots of energy since he is
+> young. Very intellegent, fun, loving dog. Our guess is he is a German
+> Shepherd mixed with English Setter  or Retriever.  Come visit and help us
+> work it out! He may steal your heart too!
 
 Kalli
 -----
