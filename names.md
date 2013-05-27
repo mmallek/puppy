@@ -1,47 +1,51 @@
 bird names
-	sparrow
-	raven
+----------
+ * sparrow
+ * raven
 
 place names
-	pecos
-	camas
-	jemez
-	river
-	canyon
-		#challis
-	boulder
-	galena
-		#bitterroot
-		#lemhi
+-----------
+ * pecos
+ * camas
+ * jemez
+ * river
+ * canyon
+ * *challis*
+ * boulder
+ * galena
+ * *bitterroot*
+ * *lemhi*
 
 people names
-	charlie
-	roxanne
-	rosemary
+------------
+ * charlie
+ * roxanne
+ * rosemary
 
 tree names
-	olive/r
-		#yucca
-	cactus
-	pinyon
-	spruce
-	juniper
-	maple
-
+----------
+ * olive/r
+ * *yucca*
+ * cactus
+ * pinyon
+ * spruce
+ * juniper
+ * maple
+ 
 rocks/geology
-	feldspar
-	cobalt
-	quartz
-	granite
-	obsidian (obie)
-		#adobe
+-------------
+ * feldspar
+ * cobalt
+ * quartz
+ * granite
+ * obsidian (obie)
+ * *adobe*
 
 poets/authors/books
-	allen
-	snyder
-	ogden
-	nash
-	sal
-	wendell
-
-	
+-------------------
+ * allen
+ * snyder
+ * ogden
+ * nash
+ * sal
+ * wendell
