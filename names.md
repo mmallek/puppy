@@ -1,9 +1,9 @@
-bird names
+birds
 ----------
  * sparrow
  * raven
 
-place names
+places
 -----------
  * pecos
  * camas
@@ -16,13 +16,13 @@ place names
  * *bitterroot*
  * *lemhi*
 
-people names
+people/character names
 ------------
  * charlie
  * roxanne
  * rosemary
 
-tree names
+trees
 ----------
  * olive/r
  * *yucca*
