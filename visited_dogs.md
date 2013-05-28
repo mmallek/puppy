@@ -96,6 +96,10 @@ Shepherd/Setter/Retriever (Chow?) male, about 1 year.
 > Shepherd mixed with English Setter  or Retriever.  Come visit and help us
 > work it out! He may steal your heart too!
 
+High to medium energy, but focuses pretty well after a little bit of settling down (running around outside). Good at sitting, good at down but immediately turns his belly up after down, in a playful way (submissive but not timid). Pretty good on the leash, responsive even if a bit rambunctious at first.  Very good and graceful runner, and didn't pull too much on the leash even from the start.
+
+He was pretty picky with his food, and didn't respond to the biscuit we tried to feed him.  However, without any food as treats, he would sit and down for us quite well, and seemed very interested in learning and pleasing both of us.  Really enjoyed a stick, seemed like he'd enjoy playing with toys, and probably would easily entertain himself with a stick or bone.
+
 Sad life history. Been in and out of several shelters and foster homes. Mixed reasons for surrender. One place said that he was getting beat up by the other 2 dogs in the home. Another place said he was food aggressive with the other dogs. Another place said he was chasing cats. Another place said that he was being handled too roughly by the owners. So, either is afraid of other dogs or aggressive towards them, it's not clear which. The shelter manager didn't know and we did not have the opportunity to test it out. We did see him barkig and wanting to go to a dog that was brought outside. He also growled at a dog he could barely see out of the window while we were in the waiting room, which was disconcerting. 
 
 He was very distracted by the other dogs and any other people he saw while we had him out. When we got him out of view of all that, he calmed down a lot. He was really sweet. He jumped a little but not excessively so and seemed responsive to requests to knock it off. His responsiveness to commands was in the absence of food rewards so that is promising.
@@ -107,6 +111,12 @@ Kalli
 ![Kalli](Kali.jpg)
 
 Bluetick Coonhound / Heeler Female, roughly 2 years.
+
+When we saw her in the kennel she looked hurt but it turned out she was leaning against the wall in an attempt to stay farther away from Quaker. Took a couple tries to get her to come out of the kennel and she immediately climbed into Maritza's lap. She seemed pretty afraid of the general kennel commotion.
+
+On the leash, when walking/running, she was very high energy, pulled a lot on the leash and was very excited to run and smell a lot of things.  She calmed down _immensley_ as soon as we stopped and I tried to interact with her.  She was very timid, insecure, and submissive.  She behaved very well and was very loving, sweet, and eager to please, but still too timid to really do much interaction.  She seemd very attentive, almost to a fault, but she seemed to know sit and down.
+
+She eventually warmed up to me, pretty quickly to Maritza, but was still quite shy. Didn't know commands and was nervous about trying to do what we wanted just right.  I gave her some treats, but she didn't eat them until she was left alone and could drop them and eat then off the ground.  She didn't seem very rewarded by them, or by praise for that matter.  Clearly at some point she has been strongly motivated by some strong negative reinforcement.
 
 She seemed to like Maritza more than Lee, or else be more nervous around Lee. But, sometimes she just went to whoever wasn't holding the leash. She would come over and totally bury her head in your lap and seemed to not want to look up. Very shy. She tried to kiss/play with Maritza a bit but since Maritza doesn't actually know how to play with dogs in that way it's hard to assess. She was a little mouthy but it didn't really frighten Maritza. Her tameness and lack of confidence actually made Maritza feel a little bit more confident about training and commands. 
 
