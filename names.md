@@ -2,6 +2,8 @@ birds
 ----------
  * sparrow
  * raven
+ * robin
+ * phoebe
 
 places
 -----------
@@ -21,6 +23,10 @@ people/character names
  * charlie
  * roxanne
  * rosemary
+ * matilda (tillie)
+ * phoebe
+ * franny
+ * zooey
 
 trees
 ----------
@@ -28,6 +34,7 @@ trees
  * *yucca*
  * cactus
  * pinyon
+ * douglas
  * spruce
  * juniper
  * maple
@@ -49,3 +56,6 @@ poets/authors/books
  * nash
  * sal
  * wendell
+ * george
+ * orwell
+ * hitchens
