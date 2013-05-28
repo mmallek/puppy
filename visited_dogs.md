@@ -17,15 +17,15 @@ Lee: I liked how attention-driven she was, energetic but not hyper/obnoxious.  
 
 M: Both really excited to see us, and good energy. Licky but not annoying about it. Seems pretty well trained, in response to sit/stay. Short hair, didn't seem to shed much. Would need to be on a diet and have exercise.  Might affect our ability to train with treats. Was a stray from NC. Roughly 3 years old
 
-
+<!--
 MAGGIE
-------
+-----
 ![Maggie](Maggie.jpg)
 
 Spaniel female. Sweet, calm, gets excited by tennis balls, herds them all.  64lbs after heartworm treatment, was 50lbs before. Very nice but more interested in the balls than us at times.  A little on the big side (pretty tall).
 
 Long hair is really pretty.
-
+-->
 
 CAPTAIN
 -------
@@ -51,6 +51,7 @@ Situation was very different from Simon.  Lots of dogs around, the dogs have be
 
 M: Obviously both will be fine around other dogs, well socialized
 
+<!--
 HAPPY
 -----
 ![Happy](Happy.jpg)
@@ -62,6 +63,7 @@ HAPPY
 Corgi/hound/boxer male two-three years. Very calm and chill. Responsive but not terribly attentive.  Affectionate when wanted, but pretty aloof otherwise. Not vocal, interacted well with other dogs, which it knew. Not much of a personal connection, even when doing some training/praise exercises.  More food responsive than praise/attention.
 
 M: Seemed like an older dog, in his temperament. Always seems chilled out but probably still needs a lot of exercise. Not a couch potato, despite the ad. Short and very long. Could reach counter. Trainable. Very pretty.
+-->
 
 MARLEE
 ------
@@ -100,9 +102,11 @@ Kalli
 
 Bluetick Coonhound / Heeler Female, roughly 2 years.
 
+<!--
 Quaker
--------
+-----
 ![Quaker](Quaker.jpg)
 
 Treeing Walker Coonhound Male, roughly 1 year
+-->
 
