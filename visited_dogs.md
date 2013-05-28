@@ -96,11 +96,23 @@ Shepherd/Setter/Retriever (Chow?) male, about 1 year.
 > Shepherd mixed with English Setter  or Retriever.  Come visit and help us
 > work it out! He may steal your heart too!
 
+Sad life history. Been in and out of several shelters and foster homes. Mixed reasons for surrender. One place said that he was getting beat up by the other 2 dogs in the home. Another place said he was food aggressive with the other dogs. Another place said he was chasing cats. Another place said that he was being handled too roughly by the owners. So, either is afraid of other dogs or aggressive towards them, it's not clear which. The shelter manager didn't know and we did not have the opportunity to test it out. We did see him barkig and wanting to go to a dog that was brought outside. He also growled at a dog he could barely see out of the window while we were in the waiting room, which was disconcerting. 
+
+He was very distracted by the other dogs and any other people he saw while we had him out. When we got him out of view of all that, he calmed down a lot. He was really sweet. He jumped a little but not excessively so and seemed responsive to requests to knock it off. His responsiveness to commands was in the absence of food rewards so that is promising.
+
+Other pertinent history is that he is a picky eater. The shelter manager said that he likes to have warm food mixed in with his kibble. He was also uninterested in a milk bone type treat we tried to give him.
+
 Kalli
 -----
 ![Kalli](Kali.jpg)
 
 Bluetick Coonhound / Heeler Female, roughly 2 years.
+
+She seemed to like Maritza more than Lee, or else be more nervous around Lee. But, sometimes she just went to whoever wasn't holding the leash. She would come over and totally bury her head in your lap and seemed to not want to look up. Very shy. She tried to kiss/play with Maritza a bit but since Maritza doesn't actually know how to play with dogs in that way it's hard to assess. She was a little mouthy but it didn't really frighten Maritza. Her tameness and lack of confidence actually made Maritza feel a little bit more confident about training and commands. 
+
+A sweet hound dog she was super interested in sniffing around and if there was something to sniff she was much less attentive. She sort of had an on/off switch in that way. She would either be totally focused on us or totally disinterested. In contrast to India, it was hard to get her attention back from a distracting item without removing the distracting item.
+
+She didn't bark at all or yowl while we had her or when we saw her in the kennel. She is definitely a hound dog, so it's very hard to say whether this would continue at home or if she would become a barker. 
 
 <!--
 Quaker
