@@ -84,8 +84,9 @@ Somewhat less organized place, not nearly as nice as Simon, not very homey like 
 
 We met the dogs outside, on our own, on leash.  Yet another situation different from Simon/Pack Leaders.  Dogs had some distractions, but also less after they were used to being outside.
 
+<!--
 Knight
-------
+-----
 ![Knight](Knight.jpg)
 
 Shepherd/Setter/Retriever (Chow?) male, about 1 year.
@@ -105,6 +106,7 @@ Sad life history. Been in and out of several shelters and foster homes. Mixed re
 He was very distracted by the other dogs and any other people he saw while we had him out. When we got him out of view of all that, he calmed down a lot. He was really sweet. He jumped a little but not excessively so and seemed responsive to requests to knock it off. His responsiveness to commands was in the absence of food rewards so that is promising.
 
 Other pertinent history is that he is a picky eater. The shelter manager said that he likes to have warm food mixed in with his kibble. He was also uninterested in a milk bone type treat we tried to give him.
+-->
 
 Kalli
 -----
