@@ -1,54 +1,68 @@
+Top contenders
+ * raven 
+ * pecos
+ * jemez 
+ * river
+ * roxanne
+ * rosemary
+ * matilda (tillie)
+ * phoebe
+ * zooey
+ * olive
+ * pinyon
+ * juniper 
+
 birds
 ----------
- * sparrow
+ * *sparrow*
  * raven
- * robin
- * phoebe
+ * *robin*
+ * *phoebe*
 
 places
 -----------
  * pecos
- * camas
+ * *camas*
  * jemez
  * river
- * canyon
+ * *canyon*
  * *challis*
- * boulder
- * galena
+ * *boulder*
+ * *galena*
  * *bitterroot*
  * *lemhi*
 
 people/character names
 ------------
- * charlie
+ * *charlie*
  * roxanne
  * rosemary
  * matilda (tillie)
  * phoebe
- * franny
+ * *franny*
  * zooey
 
 trees
 ----------
- * olive/r
+ * olive*/r*
  * *yucca*
- * cactus
+ * *cactus*
  * pinyon
- * douglas
- * spruce
+ * *ouglas*
+ * *spruce*
  * juniper
- * maple
+ * *maple*
  
 rocks/geology
 -------------
- * feldspar
- * cobalt
- * quartz
- * granite
- * obsidian (obie)
+ * *feldspar*
+ * *cobalt*
+ * *quartz*
+ * *granite*
+ * *obsidian (obie)*
  * *adobe*
 
-poets/authors/books
+*poets/authors/books*
 -------------------
  * allen
  * snyder
