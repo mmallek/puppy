@@ -2,8 +2,11 @@ Top contenders
 --------------
  * **rosemary**
  * **matilda (tillie)**
- * **olive**
- * **juniper**
+ * **Ciara/Kiara**
+ * **izzy**
+ * **river**
+ * olive
+ * juniper
  * raven
  * pecos
  * river
@@ -14,7 +17,7 @@ Top contenders
  * cedar
  * cypress
  * izzy
- * Ciara (seera)
+ * Ciara (keera)
  * Fiona
 
 
