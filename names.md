@@ -11,6 +11,14 @@ Top contenders
  * olive
  * pinyon
  * juniper 
+ * 
+ 
+Maritza's Picks
+-----------------
+ * rosemary (rosie)
+ * matilda (tilly)
+ * olive
+ * osita
 
 birds
 ----------
