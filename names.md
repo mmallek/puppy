@@ -4,10 +4,10 @@ Top contenders
  * **olive**
  * **izzy**
  * **juniper**
+ * dipper
  * raven 
  * pecos
  * river
- * phoebe
  * zooey
 
 
