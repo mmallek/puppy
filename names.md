@@ -2,13 +2,17 @@ Top contenders
  * **rosemary**
  * **matilda (tillie)**
  * **olive**
- * **izzy**
  * **juniper**
- * dipper
  * raven 
  * pecos
  * river
  * zooey
+ 
+ New
+ * dipper
+ * cedar
+ * cypress
+ * izzy
 
 
 
