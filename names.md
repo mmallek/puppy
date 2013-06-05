@@ -14,6 +14,8 @@ Top contenders
  * cedar
  * cypress
  * izzy
+ * Ciara (seera)
+ * Fiona
 
 
 
