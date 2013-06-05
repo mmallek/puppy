@@ -1,24 +1,16 @@
 Top contenders
+ * **rosemary**
+ * **matilda (tillie)**
+ * **olive**
  * raven 
  * pecos
  * jemez 
  * river
  * roxanne
- * rosemary
- * matilda (tillie)
  * phoebe
  * zooey
- * olive
  * pinyon
  * juniper 
- * 
- 
-Maritza's Picks
------------------
- * rosemary (rosie)
- * matilda (tilly)
- * olive
- * osita
 
 birds
 ----------
