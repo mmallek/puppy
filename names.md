@@ -2,15 +2,15 @@ Top contenders
  * **rosemary**
  * **matilda (tillie)**
  * **olive**
+ * **izzy**
+ * **juniper**
  * raven 
  * pecos
- * jemez 
  * river
- * roxanne
  * phoebe
  * zooey
- * pinyon
- * juniper 
+
+
 
 birds
 ----------
