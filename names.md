@@ -1,10 +1,11 @@
 Top contenders
 --------------
- * **rosemary**
+
  * **matilda (tillie)**
  * **Ciara/Kiara**
- * **izzy**
- * **river**
+ * rosemary
+ * izzy
+ * river
  * olive
  * juniper
  * raven
